@@ -1,0 +1,2 @@
+# bo-egoy
+baru belajar
